@@ -12,3 +12,15 @@
 -->
 
 A startup that connects brands with influencer. It's a marketplace for influencers marketing, and its focused on influencers that have large social followings.
+
+Your can follow our update on our social media handles below:
+
+Twitter: @stratifi_
+
+Facebook: @stratifi
+
+Lingkedin: @stratifing
+
+Instagram: @stratifii_
+
+TikTok: @stratifi
